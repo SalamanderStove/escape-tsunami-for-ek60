@@ -1,4 +1,4 @@
-#  
+#  escape tsunami for brainrots Script vip is the best escape tsunami for brainrots Script, featuring no cooldown and fly. Safe and powerful for all
 
 
 
